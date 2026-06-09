@@ -28,7 +28,7 @@ HarpoonQueen, PayCheck, 1xjane (my wife's favorite ship isn't count for me to ha
 
   + ship interest by
 
-DuseTaph (my wife's favorite ship) Daisy1337, MollyMatt, Matt1337, JohnJane, PirateDebut/Queen / CorruptDebut, CorruptBuild / BuilderDoe, ToughLuck, NewBlood, MafiaJane, CannibalCaptain, NoobGuest, BuilderSheb, ArmyDreamers, Past AzureTime, SecondChance, DebutPizza, FrozenDebut, JohnSlash, NewDoe, VampireQueen, CorruptLuck, DoubleShades, ChickenBurger, DoubleJohn, FrozenShop, BurgerMemory, 1337n7, BurgerLucky, PizzaPunch, FrozenPizza, NewHire, DoubleFadora (don't tell my friend)
+DuseTaph (my wife's favorite ship) Daisy1337, MollyMatt, Matt1337, JohnJane, PirateDebut/Queen / CorruptDebut, CorruptBuild / BuilderDoe, ToughLuck, NewBlood, MafiaJane, CannibalCaptain, NoobGuest, BuilderSheb, ArmyDreamers, Past AzureTime, SecondChance, DebutPizza, FrozenDebut, JohnSlash, NewDoe, VampireQueen, CorruptLuck, DoubleShades, ChickenBurger, DoubleJohn, FrozenShop, BurgerMemory, John1337, 1337n7, BurgerLucky, PizzaPunch, FrozenPizza, NewHire, DoubleFadora (don't tell my friend)
 
   + loss of ship interest
 
