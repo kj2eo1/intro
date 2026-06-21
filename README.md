@@ -24,7 +24,7 @@ AmongUs (my wife's favorite game) sky children of the light, midsaken, Limbus Co
 
   + My ship interest
 
-HarpoonQueen, PayCheck, 1xjane (my wife's favorite ship isn't count for me to hate)
+HarpoonQueen, PayCheck
 
   + ship interest by
 
