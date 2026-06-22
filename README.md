@@ -32,7 +32,7 @@ DuseTaph (my wife's favorite ship) Daisy1337, MollyMatt, Matt1337, JohnJane, Pir
 
   + loss of ship interest
 
-PizzaBurger, AzureTime, 1x1x1x1 x everyone (except for my wife's favorite ship) DoubleFadora past
+PizzaBurger, AzureTime, 1x1x1x1 x everyone, DoubleFadora past
 
   + dni
 
