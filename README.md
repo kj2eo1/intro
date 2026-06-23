@@ -8,7 +8,7 @@ editing, drawing & animation, talking / Listen, Being in space, living in peace 
 
   + favorite thing🤔
 
-Pink & red, bánh tart trứng, sienna & no one noticed
+Pink & red, bánh tart trứng, sienna & em là
 
   + I dislike
 
