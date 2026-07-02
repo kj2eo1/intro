@@ -44,7 +44,7 @@ Darkshipper, Problematic HeadCanon, 1x1x1x1 (I won't forced you say exactly what
 
   + PLEASE READ THIS!!
 
-please be careful with your mind to talk with me if you're (last fav) fan, I'm really aggressive against you but I apologize, I'm sensitive that you mention them.
+please be careful with your mind to talk with me if you're (last fav) fan, I apologize I'm sensitive that you mention them.
 
 please do NOT talk shit about (last fav) with me, I told you I'm still SENSITIVE to heard them mentioned. 
 
