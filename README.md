@@ -24,17 +24,17 @@ AmongUs (my wife's favorite game) sky children of the light, midsaken, Limbus Co
 
   + My ship interest
 
-HarpoonQueen, PayCheck
+HarpoonQueen, PayCheck, JohnJane (before corrupt) 
 
   + ship interest by
 
-DuseTaph (my wife's favorite ship) Daisy1337, MollyMatt, Matt1337, JohnJane, PirateDebut/Queen / CorruptDebut, CorruptBuild / BuilderDoe, ToughLuck, NewBlood, MafiaJane, CannibalCaptain, NoobGuest, BuilderSheb, ArmyDreamers, Past AzureTime, SecondChance, DebutPizza, FrozenDebut, JohnSlash, NewDoe, VampireQueen, CorruptLuck, DoubleShades, ChickenBurger, DoubleJohn, ichance, FrozenShop, BurgerMemory, Jane1337, John1337, 1337n7, LuckyHacker, PizzaPunch, FrozenPizza, NewHire, DoubleFadora (don't tell my friend)
+DuseTaph (my wife's favorite ship) multipleshipper (I hate writing again) 
 
   + loss of ship interest
 
 PizzaBurger, AzureTime, 1x1x1x1 x everyone, DoubleFadora past
 
-  + dni
+  + do NOT interest
 
 Darkshipper, Problematic HeadCanon, 1x1x1x1 (I won't forced you say exactly what I hate)
 
