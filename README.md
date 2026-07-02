@@ -38,4 +38,16 @@ PizzaBurger, AzureTime, 1x1x1x1 x everyone, DoubleFadora past
 
 Darkshipper, Problematic HeadCanon, 1x1x1x1 (I won't forced you say exactly what I hate)
 
+  + PLEASE READ THIS!!
+
+please be careful with your mind to talk with me if you're 1x1x1x1's fan, I'm really aggressive against you but I apologize, I'm sensitive that you mention them.
+
+please do NOT talk shit about 1x1x1x1 with me, I told you I'm still SENSITIVE to heard them mentioned. 
+
+please do NOT show me your art if you forgot to remove 1x1x1x1 I apologize.
+
+please do NOT make excuse for called "ragebait" to me as sensitive, I will easily block you and I apologize.
+
+please accept my apologie for being sensitive to see them mentioned. 
+
   + Thank You For Reading ♥︎
