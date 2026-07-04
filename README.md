@@ -42,7 +42,15 @@ PizzaBurger, AzureTime, 1x1x1x1 x everyone, DoubleFadora past
 
 Darkshipper, Problematic HeadCanon, 1x1x1x1 & 007n7
 
-  + PLEASE READ THIS!!
+  + PLEASE READ THIS!! 
+
+If I'm your idol please do NOT interest with me in dm and just enjoy my art.
+
+please do NOT tell me what you want me to draw when my post about "idk what to post / draw" I'm literally on taking a break and I feel being forceful by you. 
+
+please do NOT ask me to be friends with you, if it's your needed so be careful with your mind what you talk with me (unless I see you as moot.)
+
+  + ALSO READ THIS!!
 
 please be careful with your mind to talk with me if you're (last fav) fan, I apologize I'm sensitive that you mention them.
 
@@ -53,15 +61,5 @@ please do NOT show me your art if you forgot to remove (last fav).
 please do NOT make excuse for called "ragebait" to me as sensitive, I will easily block you. 
 
 please accept my apologie for being sensitive to see them mentioned. 
-
-  + ALSO READ THIS!! 
-
-please do NOT tell me what you want me to draw when my post about "idk what to post / draw" I'm literally on taking a break and I feel being forceful by you
-
-please do NOT ask me to be friends with you (sometime you can.)
-
-please do NOT talk shit about some shipper (it forced me to MOCK them.)
-
-please do NOT forced me to ship your fav that I like.
 
   + Thank You For Reading ♥︎
