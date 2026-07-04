@@ -48,9 +48,9 @@ please be careful with your mind to talk with me if you're (last fav) fan, I apo
 
 please do NOT talk shit about (last fav) with me, I told you I'm still SENSITIVE to heard them mentioned. 
 
-please do NOT show me your art if you forgot to remove (last fav) I apologize.
+please do NOT show me your art if you forgot to remove (last fav).
 
-please do NOT make excuse for called "ragebait" to me as sensitive, I will easily block you and I apologize.
+please do NOT make excuse for called "ragebait" to me as sensitive, I will easily block you. 
 
 please accept my apologie for being sensitive to see them mentioned. 
 
