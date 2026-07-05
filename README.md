@@ -50,15 +50,17 @@ please do NOT tell me what you want me to draw when my post about "idk what to p
 
 please do NOT ask me to be friends with you, if it's your needed so be careful with your mind what you talk with me (unless I see you as moot.)
 
+please accept my apologie for being sensitive like this, I'm not really good at interest with you. 
+
   + ALSO READ THIS!!
 
-please be careful with your mind to talk with me if you're (last fav) fan, I apologize I'm sensitive that you mention them.
+please be careful with your mind to talk with me if you're (last fav) character's fan, I apologize I'm sensitive that you mention them.
 
-please do NOT talk shit about (last fav) with me, I told you I'm still SENSITIVE to heard them mentioned. 
+please do NOT talk shit about (last fav) with me, I told you I'm still SENSITIVE to heard them mentioned (friends only.)
 
 please do NOT show me your art if you forgot to remove (last fav).
 
-please do NOT make excuse for called "ragebait" to me as sensitive, I will easily block you. 
+please do NOT make excuse for called "ragebait" to me as sensitive, I will easily block you.
 
 please accept my apologie for being sensitive to see them mentioned. 
 
