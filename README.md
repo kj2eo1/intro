@@ -1,7 +1,5 @@
 * intro about me
 
-  + I have two name killy or etio you can called me whatever you want
-
   + I like
 
 editing, drawing & animation, talking / Listen, Being in space, living in peace with my wife (I wish)
