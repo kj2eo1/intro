@@ -6,11 +6,11 @@ editing, drawing & animation, talking / Listen, Being in space, living in peace 
 
   + favorite thing🤔
 
-Pink & red, bánh tart trứng, sienna & em là
+Pink & red, bánh tart trứng, don’t have a fav songs
 
   + I dislike
 
-Care about being famous / my fan:(, being touched by anyone else, being forceful yourself for me, judge / mock victim (let's see who YOU got judged by), begging for showing nsfw arts as 17yo 
+Care about being famous / my fan:(, being touched by anyone else, being forceful yourself for me, judge / mock victim
 
   + Favorite Character
 
@@ -38,28 +38,6 @@ PizzaBurger, AzureTime, 1x1x1x1 x everyone, DoubleFadora past
 
   + do NOT interest
 
-Darkshipper, Problematic HeadCanon, 1x1x1x1 & 007n7
-
-  + PLEASE READ THIS!! 
-
-If I'm your idol please do NOT interest with me in dm and just enjoy my art.
-
-please do NOT tell me what you want me to draw when my post about "idk what to post / draw" I'm literally on taking a break and I feel being forceful by you. 
-
-please do NOT ask me to be friends with you, if it's your needed so be careful with your mind what you talk with me (unless I see you as moot.)
-
-please accept my apologie for being sensitive like this, I'm not really good at interest with you. 
-
-  + ALSO READ THIS!!
-
-please be careful with your mind to talk with me if you're (last fav) character's fan, I apologize I'm sensitive that you mention them.
-
-please do NOT talk shit about (last fav) with me, I told you I'm still SENSITIVE to heard them mentioned (friends only.)
-
-please do NOT show me your art if you forgot to remove (last fav.)
-
-please do NOT make excuse for called "ragebait" to me as sensitive, I will easily block you.
-
-please accept my apologie for being sensitive to see them mentioned. 
-
+incest, large age-gap, romancing toxic ship, problematic headcanon, drawing nsfw arts as minor (sorry)
+  
   + Thank You For Reading ♥︎
