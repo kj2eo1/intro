@@ -22,7 +22,7 @@ Valentino, Douma, 007n7 & 1x1x1x1, ShadowMilkCookie
 
   + interest
 
-AmongUs (my wife's favorite game) sky children of the light, midsaken, Limbus Company, Meleeniacs & regretevator, Block Tales, Chiikawa, The Robloxia Until Dawn, Doraemon, Cookie Run Kigdom / Ovenbreak, Undertale, Steven Universe, any psychological roblox, AnimationVsAnimator/Minecraft, ENA / Dream BBQ, arcane, Castlevania Nocturne, Die Of Death, multiplefandom (I forget😔)
+AmongUs (my wife's favorite game) sky children of the light, midsaken, Trolls, Limbus Company, Meleeniacs & regretevator, Block Tales, Chiikawa, The Robloxia Until Dawn, Doraemon, Cookie Run Kigdom / Ovenbreak, Undertale, Steven Universe, any psychological roblox, AnimationVsAnimator/Minecraft, ENA / Dream BBQ, arcane, Castlevania Nocturne, Die Of Death, animal hospital, doki doki literature club, Bocchi The Rock!, Detective Conan, Friday Night Funkin, Demon Slayer / Kimetsu No Yaiba, Veil, Pizza Game Bate, Bendy And The Machine Ink, Sonic The Hedgehog, Bad Ending Theater, Squid Game, Mouth Washing, Five Night At Feddy's, My Little Pony, Overlord, Cat Are Liquor, Bluey, Gloomy Bear, Goat, Pacific Rim, Poppy Playtime, multiplefandom (I forget😔)
 
   + My fav ship
 
