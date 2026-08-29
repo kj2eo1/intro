@@ -36,8 +36,12 @@ DuseTaph (my wife's favorite ship) multipleshipper (I hate writing again)
 
 PizzaBurger, AzureTime, 1x1x1x1 x everyone, DoubleFadora past
 
+ + Another Favourite Ship
+
+any selfcest / mirrorship, poprocks (Barb x Poppy), pinksun (sun x blixer), any ship in among us, Dark enchantress Cookie x Captain Ice Cookie
+
   + do NOT interest
 
-incest, large age-gap, romancing toxic ship, problematic headcanon, drawing nsfw arts as minor (sorry)
+incest, large age-gap, romancing toxic dynamics, problematic headcanon, drawing nsfw arts as minor (sorry)
   
   + Thank You For Reading ♥︎
