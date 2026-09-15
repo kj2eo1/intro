@@ -30,7 +30,7 @@ HarpoonQueen, PayCheck
 
   + ship interest by
 
-DuseTaph (my wife's favorite ship) multipleshipper (I hate writing again) 
+DuseTaph (my wife's favorite ship) any canon ship, multipleshipper (I hate writing again) 
 
   + loss of ship interest
 
