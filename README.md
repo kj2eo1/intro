@@ -10,7 +10,7 @@ Pink & red, bánh tart trứng, don’t have a fav songs
 
   + I dislike
 
-Care about being famous / my fan:(, being touched by anyone else, being forceful yourself for me, judge / mock victim
+Care about being famous / my fan:(, being touched by anyone else, judge / mock victim
 
   + Favorite Character
 
